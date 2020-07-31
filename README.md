@@ -9,7 +9,7 @@ These ordinary people save their money by their thrift and hard work.<p>
 They never thought their money can be stolen in broad daylight.<p>
 他们从未想过存下的辛苦钱在在光天化日之下损失殆尽
   
-The initiator of evil care about themself.
+The initiator of evil care about themself.<p>
 始作俑者只求自保，默不作声
 
 This is a fucking world.
