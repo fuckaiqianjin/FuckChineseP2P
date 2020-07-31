@@ -3,10 +3,10 @@ Thanks to their efforts, all these risks have been shifted to millions of invest
 
 考虑到P2P行业的风险，中国金融监管机构不遗余力地规范P2P公司。感谢他们的努力，所有的风险最终都转嫁给了投资人,这些人都是普通普通的人民群众
 
-These ordinary people save their money by their thrift and hard work
+These ordinary people save their money by their thrift and hard work.<p>
 这些普通人勤劳节俭存下辛苦钱
 
-They never thought their money can be stolen in broad daylight.
+They never thought their money can be stolen in broad daylight.<p>
 他们从未想过存下的辛苦钱在，在光天化日之下损失殆尽
 
 P2P Company List
