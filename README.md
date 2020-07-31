@@ -8,6 +8,8 @@ These ordinary people save their money by their thrift and hard work.<p>
 
 They never thought their money can be stolen in broad daylight.<p>
 他们从未想过存下的辛苦钱在在光天化日之下损失殆尽
+  
+This is a fucking world.
 
 P2P Company List
 
