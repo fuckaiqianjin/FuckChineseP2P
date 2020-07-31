@@ -4,8 +4,11 @@ Thanks to their efforts, all these risks have been shifted to millions of invest
 考虑到P2P行业的风险，中国金融监管机构不遗余力地规范P2P公司。感谢他们的努力，所有的风险最终都转嫁给了投资人,这些人都是普通普通的人民群众
 
 
-
 爱钱进
+
+微贷网
+
+小牛在线
 
 团贷网
 
@@ -15,3 +18,8 @@ Thanks to their efforts, all these risks have been shifted to millions of invest
 
 银谷在线
 
+投之家
+
+牛板金
+
+.....
