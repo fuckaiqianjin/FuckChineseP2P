@@ -7,7 +7,7 @@ These ordinary people save their money by their thrift and hard work.<p>
 这些普通人勤劳节俭存下辛苦钱
 
 They never thought their money can be stolen in broad daylight.<p>
-他们从未想过存下的辛苦钱在，在光天化日之下损失殆尽
+他们从未想过存下的辛苦钱在在光天化日之下损失殆尽
 
 P2P Company List
 
