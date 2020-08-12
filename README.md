@@ -24,11 +24,12 @@
 <br>
 <br>
 <br>
+
 #### P2P Company List 暴雷公司
 
 #### 爱钱进
 
-![baidu](http://www.baidu.com/img/bdlogo.gif "百度logo")  
+![baidu](http://www.baidu.com/img/bdlogo.gi "百度logo")  
 
 
 #### 微贷网
