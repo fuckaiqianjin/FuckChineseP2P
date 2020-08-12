@@ -15,7 +15,7 @@
 
 #### This is a fucking world.<p>
 
-#### Only when we protect our rights do we know whether we human rights<p>
+#### Only when we protect our rights do we know whether we have human rights<p>
 #### 维权的时候才知道人民有没有人权<p>
 
 #### They claim to serve the people, in fact ,they just kick the can down the road<p>
