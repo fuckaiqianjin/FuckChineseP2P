@@ -14,8 +14,9 @@ The initiator of evil care about themselves.<p>
 
 This is a fucking world.
 
+维权的时候才知道人民有没有人权
 
-
+他们声称为人民服务，其实把人民当皮球踢来踢去
 
 P2P Company List 暴雷公司
 
