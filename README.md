@@ -29,9 +29,6 @@
 
 #### 爱钱进
 
-![baidu](http://www.baidu.com/img/bdlogo.gi "百度logo")  
-
-
 #### 微贷网
 
 #### 小牛在线
