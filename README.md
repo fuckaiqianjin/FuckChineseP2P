@@ -15,6 +15,7 @@ The initiator of evil care about themselves.<p>
 This is a fucking world.
 
 维权的时候才知道人民有没有人权
+Only when we protect our rights do we know whether we human rights
 
 他们声称为人民服务，其实把人民当皮球踢来踢去
 
