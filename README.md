@@ -28,7 +28,7 @@
 #### P2P Company List 暴雷公司
 
 #### 爱钱进
-![baidu](https://github.com/fuckaiqianjin/FuckChineseP2P/raw/master/aqj0812.jpg "aqj")  
+![aqj](https://github.com/fuckaiqianjin/FuckChineseP2P/raw/master/aqj0812.jpg "aqj")  
 
 #### 微贷网
 
